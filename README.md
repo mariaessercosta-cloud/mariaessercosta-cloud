@@ -1,16 +1,12 @@
-## Hi there 👋
+## Bem vindo 👋 
 
-<!--
-**mariaessercosta-cloud/mariaessercosta-cloud** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- 🏫 Estudo no CCM Manoel Ribas
+- 🎒 Sou do 9º ano
+- 💃🇺🇦 Dança ucraniana
+- 🎪🤸‍♀️ Arte cirsence
+- 📸 @esser_mariaa
+- ⛪ Católica
+  
+![](https://media1.tenor.com/m/kQNVHSi5J50AAAAC/funny-meme.gif)
+![](https://media1.tenor.com/m/I7iY70DmwEwAAAAC/camilla-loures-camila-loures.gif)
+![](https://media1.tenor.com/m/KdE-OBaEknUAAAAd/camila-loures-nu-vai-tomando.gif)
