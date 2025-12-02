@@ -8,5 +8,4 @@
 - ⛪ Católica
   
 ![](https://media1.tenor.com/m/kQNVHSi5J50AAAAC/funny-meme.gif)
-![](https://media1.tenor.com/m/I7iY70DmwEwAAAAC/camilla-loures-camila-loures.gif)
 ![](https://media1.tenor.com/m/KdE-OBaEknUAAAAd/camila-loures-nu-vai-tomando.gif)
