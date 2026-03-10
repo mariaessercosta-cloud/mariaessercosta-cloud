@@ -9,4 +9,4 @@
 -  🐇
   
 ![](https://media1.tenor.com/m/KdE-OBaEknUAAAAd/camila-loures-nu-vai-tomando.gif)
-<img width="254" height="450" alt="image" src="https://github.com/user-attachments/assets/60a921bc-0d54-4b26-81d5-3f2bc86e39df" />
+![](https://media1.tenor.com/m/GmSb4n4crNoAAAAC/aoi.gif)
