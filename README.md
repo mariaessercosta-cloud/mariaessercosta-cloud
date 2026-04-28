@@ -8,5 +8,4 @@
 - ⛪🇻🇦 Católica
 -  🐇
   
-![](https://media1.tenor.com/m/KdE-OBaEknUAAAAd/camila-loures-nu-vai-tomando.gif)
 ![](https://media1.tenor.com/m/GmSb4n4crNoAAAAC/aoi.gif)
